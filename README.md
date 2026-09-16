@@ -2,7 +2,10 @@
 
 ## 🎥 Project Presentation
 
-▶️ **[Watch Project Presentation](./ALQAMA%20Presentation%20%281%29%20%281%29.mp4)**
+## 🎥 Project Presentation
+
+Watch my project presentation:
+
 
 ---
 
